@@ -1,2 +1,2 @@
-# EduQR.github.io
+# https://ahirwarvivek19.github.io/Edu-QR/
  
